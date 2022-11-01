@@ -1,1 +1,1 @@
-# 90-s-80-s-kids-favourit-snacks
+# 90-s-80-s-kids-favourite-snacks
